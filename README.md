@@ -25,3 +25,13 @@
 ![10](3X_wallpapers/wallpaperflare.com_wallpaper(9).jpg)
 
 ![11](3X_wallpapers/wallpaperflare.com_wallpaper(10).jpg)
+
+![12](wallpaperflare.com_wallpaper.jpg)
+
+![13](wallpaperflare.com_wallpaper(1).jpg)
+
+![14](wallpaperflare.com_wallpaper(2).jpg)
+
+![15](wp9705256-texhnolyze-wallpapers.jpg)
+
+![16](wp9705261-texhnolyze-wallpapers.jpg)
