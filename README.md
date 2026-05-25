@@ -6,9 +6,9 @@
 
 ![1](3X_wallpapers/wallpaperflare.com_wallpaper.jpg)
 
-![2](3X_wallpapers/wallpaperflare.com_wallpaper(2).jpg)
+![2](3X_wallpapers/wallpaperflare.com_wallpaper(1).jpg)
 
-![3](3X_wallpapers/wallpaperflare.com_wallpaper(3).jpg)
+![3](3X_wallpapers/wallpaperflare.com_wallpaper(2).jpg)
 
 ![4](3X_wallpapers/wallpaperflare.com_wallpaper(3).jpg)
 
