@@ -2,7 +2,7 @@
 
 # Prewiev
 
-![0](image.jpg}
+![0](image.jpg)
 
 ![1](wallpaperflare.com_wallpaper.jpg)
 
